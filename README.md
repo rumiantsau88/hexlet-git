@@ -2,8 +2,9 @@ No code No pain
 new string
 O*^FBAD^Avsc
 |
-
-cs
+fvkjdfd
+c6dngg
 vsdvi73b
 s  
 ./git
+df;
